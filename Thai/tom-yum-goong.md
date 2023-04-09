@@ -34,7 +34,7 @@ _serves 2 people_
 
 ## Preparation
 
-1. Boil water in a mediu sized pot. Add lemongrass, galangal, lime leaves, shallots, coriander roots, dried chilies, and salt. Simmer for at least 10 minutes to extract some flavour, but up to 30 minutes is best.
+1. Boil water in a medium sized pot. Add lemongrass, galangal, lime leaves, shallots, coriander roots, dried chilies, and salt. Simmer for at least 10 minutes to extract some flavour, but up to 30 minutes is best.
 2. Strain the ingredients and add the chili paste. Stir well to incorporate.
 3. Add palm sugar, fish sauce, sawtooth coriander, mushrooms, and shrimp. Simmer until the shrimp are cooked.
 4. Add lime juice and fresh red chilies. Stir to incorporate, and turn off the heat. 
