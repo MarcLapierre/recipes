@@ -25,7 +25,7 @@ _Gaeng Ped_, the classic Thai Red Curry. One of the benchmark dishes by which I 
 _serves 3-4 people_
 
 - Jasmine rice
-- 1 batch of fresh [Thai green chili paste](https://github.com/MarcLapierre/recipes/blob/main/Thai/red-curry-paste.md)
+- 1 batch of fresh [Thai red chili paste](https://github.com/MarcLapierre/recipes/blob/main/Thai/red-curry-paste.md)
 - 1 cup of high quality coconut milk
 - 1 cup of water
 - 300g Chicken thigh or Pork shoulder
