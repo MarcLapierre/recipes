@@ -14,7 +14,7 @@ Holy Basil stir fry is a staple street food across Thailand. The fragrant sweet 
 
 ## Common mistakes
 
-- Holy Basil is not the same as Thai sweet basil. Don't let the name fool you, it's a different herb with it's own flavour profile, and is not a substitute. While you can make this dish with Thai sweet basil, it would no longer be Pad Krapow but Pad Horapha. 
+- Holy Basil is not the same as Thai sweet basil. Don't let the name fool you, it's a different herb with it's own flavour profile, and is not a substitute. While you can make this dish with Thai sweet basil, it would no longer be Pad Krapow but Pad Horapha. Whatever you do, don't substitute for Italian basil.
 - Crushing the aromatics in a mortar intensifies the flavour significantly. Some recipes will tell you to simply dice them up, but that's not sufficient. If you don't have. mortar and pestle, smash them under the broad side of a cleaver after a coarse chop to simulate the pounding effect.
 - Leave the seeds and membranes in your chilies. That's where all the flavour is. If you find the dish too spicy, simply use fewer chilies.
  
