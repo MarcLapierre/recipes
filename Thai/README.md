@@ -19,7 +19,7 @@ It'll be well worth it. Enjoy the adventure.
 Toronto:
 * [Patchmon's](https://goo.gl/maps/F3dUiSDwQvN2dgBMA)
 * [Kiin](https://goo.gl/maps/M8H44wFw8x2wRv556)
-* [Khao San Road](https://goo.gl/maps/R2W8mqzWKghijWkHA0
+* [Khao San Road](https://goo.gl/maps/R2W8mqzWKghijWkHA0)
 * [Pai](https://goo.gl/maps/RngV5TP4ca74tw1v5)
 
 Montreal:
