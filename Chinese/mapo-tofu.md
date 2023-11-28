@@ -47,7 +47,7 @@ _serves 3-4 people_
 4. In a small bowl, mix your doubanjiang, douchi, tianmiangjiang, lajiao fen, chili oil, and sichuan peppercorns.
 5. In another bowl, mix your chicken stock, cooking wine, and soy sauce.
 6. Slice your spring onions, separating the whites and greens.
-7. Boil some salted water and dice your tofu.
+7. Boil some salted water and dice your tofu into 1" cubes.
 8. Mix your cornstarch with 1 tbsp cold water in a bowl.
 
 ## Preparation
